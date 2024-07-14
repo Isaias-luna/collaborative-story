@@ -6,3 +6,6 @@ Legend had it that whoever ventured into the forest never returned. One day, a c
 
 To no one suripure the 16 year old girl got destory by obelisk the tormentor, This allow her to responed to her point...
 she made the plan to band a team of heros to defeat the boss and continue her journey with her new group of friends.
+
+
+They eventually destroy the Boss and live happily ever after!
