@@ -9,3 +9,6 @@ she made the plan to band a team of heros to defeat the boss and continue her jo
 
 
 They eventually destroy the Boss and live happily ever after!
+
+Part 2 
+One day the group of friends went on another journey but this time to a dungoun which was in the middle of the forest. They wanted high level dragon Armor to join and defeat another raid boss thats from a castle somewhere around 45 miles away from the village and forest. this was because of the frist raid boss that was defeated from the forest had buff every enemy from the forset and dungoun before it die from the mightly heros.
